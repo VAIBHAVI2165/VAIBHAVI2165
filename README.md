@@ -1,5 +1,3 @@
-# VAIBHAVI
-# VAIBHAVI
 👋 Hi, I’m Vaibhavi
 
 💻 BTech Computer Science student @ Bennett University<br/>
